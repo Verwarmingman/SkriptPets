@@ -35,7 +35,7 @@ Purchase Mining: https://tinyurl.com/ypuhsucb
 
 Purchase Tutorials: https://tinyurl.com/2fzjj658
 
-Purchase Pets: TO ADD
+Purchase Pets: https://tinyurl.com/y6bmrp7w
 
 
 # Examples and Documentation
